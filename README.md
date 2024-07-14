@@ -11,7 +11,6 @@
 
 - 📫 How to reach me **jasonweng44@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1t06eZzv1KxpLo8jQHTLXw_CsplPkYB8qXoykXhj1YdE/edit?usp=sharing](https://docs.google.com/document/d/1t06eZzv1KxpLo8jQHTLXw_CsplPkYB8qXoykXhj1YdE/edit?usp=sharing)
 
 - ⚡ Fun fact **I like feathered creatures**
 
